@@ -19,7 +19,7 @@ Este podcast de 5 minutos oferece uma reflexão rápida, mas profunda, sobre com
 ## 🚀 Resultados
 O episódio apresenta insights práticos para profissionais que desejam melhorar sua gestão de tempo, reduzir a sobrecarga e focar no que realmente importa.
 
-[LINK PARA O PODCAST AQUI]()
+[LINK PARA O PODCAST AQUI](https://app.heygen.com/videos/faba3c681d70403195f0de25c574c7c6)
 
 ## 💭 Reflexão
 A aplicação do Essencialismo no mundo corporativo pode ser um diferencial competitivo, ajudando empresas e profissionais a alcançar melhores resultados com menos estresse e mais eficiência.
